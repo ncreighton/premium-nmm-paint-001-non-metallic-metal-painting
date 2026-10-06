@@ -1,0 +1,2 @@
+# premium-nmm-paint-001-non-metallic-metal-painting
+Tired of NMM that looks more like dirty silver than polished steel? The Non Metallic Metal Painting &amp; Craft Hub is your structured Notion workspace to finally crack the illusion of metal without metallic paints.  This template eliminates the chaos of scattered tutorials, forgotten color mixes, and inconsistent progress. It gives you a systematic fr
